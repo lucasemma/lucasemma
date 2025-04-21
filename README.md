@@ -1,5 +1,8 @@
 ## Hi there 👋
+I'm Lucas, Enneagram [Type 3](https://enneagramuniverse.com/enneagram/learn/enneagram-types/enneagram-type-3-the-achiever) — The Achiever  
+- Myers-Briggs: [ESFP-A](https://www.16personalities.com/esfp-personality) — The Entertainer (Assertive)
 
+You can DM on Twitter: @lucasemma
 <!--
 **lucasemma/lucasemma** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
